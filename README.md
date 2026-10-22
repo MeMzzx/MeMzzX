@@ -1,5 +1,5 @@
 
-![MasterHead](https://i.pinimg.com/1200x/34/0f/ab/340fab23bf0a60db07843631271dbbab.jpg)
+![MasterHead](https://i.pinimg.com/1200x/9f/74/aa/9f74aac479ad843a02a08778b1bab5fa.jpg)
 
 
 <h1 align="center">Hi 👋, I'm MeMzzX</h1>
